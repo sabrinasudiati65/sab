@@ -1,2 +1,0 @@
-# sab
-Sabri nas
